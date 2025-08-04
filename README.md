@@ -39,7 +39,7 @@ If you're looking to build something meaningful — I’d love to hear from you!
 ---
 
 ## 📫 Get in Touch
-- 🔗 [LinkedIn](https://www.linkedin.com/in/naveenkumar-muniswaran)  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/naveenkumar-muneeswaran/)  
 - 📧 m.naveenkumarmunees@gmail.com  
 - 📍 Virudhunagar, Tamil Nadu, India  
 
